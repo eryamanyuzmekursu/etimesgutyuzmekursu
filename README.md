@@ -1,5 +1,5 @@
 # <center><h1><a href="https://ankarayuzmedersi.com.tr/">BİREBİR ÖZEL YÜZME DERSİ HAKKINDA BİLGİ ALMAK İÇİN TIKLAYINIZ.</a></h1></center>
-<b>Etimesgut Yüzme Kursu</b>: Sağlıklı ve Eğlenceli Bir Deneyim
+<b>Etimesgut Yüzme Kursu</b>: Sağlıklı ve Eğlenceli Bir Deneyim 
 Yüzme, sadece bir spor değil, aynı zamanda sağlıklı bir yaşam tarzının önemli bir parçasıdır. Bu nedenle, özellikle çocuklar için yüzme öğrenmek, hayat kurtarıcı bir beceri olmasının yanı sıra, fiziksel gelişim ve sosyal etkileşim açısından da büyük faydalar sunar. Etimesgut’ta bulunan yüzme kursları, bu hedeflere ulaşmak isteyen herkes için ideal bir ortam sunmaktadır.
 
 Uzman Eğitmenler ve Kapsamlı Programlar
